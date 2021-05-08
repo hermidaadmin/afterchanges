@@ -1,1 +1,1 @@
-# afterchanges
+# afterchanges.  resize pictures
